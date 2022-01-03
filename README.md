@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Hapeie
-- New to to this whole thing, lets see where we can go!
+- New to this whole thing, lets see where we can go!
 
 
 <!---
